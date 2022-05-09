@@ -1,3 +1,3 @@
- I’m Rhoda KOLO,from Nigeria. I hold a Bachelor’s degree in Human Anatomy and currently work as a Lecturer. 
-My research interests are cognitive neuroscience and science journalism however, I'm open to a career in 
+ I’m Rhoda KOLO,from Nigeria. I am a Basic Medical scientist/Researcher. 
+My research interests are cognitive neuroscience and gut microbiome. I'm also exploring a career in product design 
 You can reach me on LinkedIn https://www.linkedin.com/in/rhoda-kolo-110215219
